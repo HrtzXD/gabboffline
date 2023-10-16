@@ -1,2 +1,1 @@
-HI!
 Release : https://cdn.discordapp.com/attachments/1153774914415890432/1163528833220214814/gabb.rar?ex=653fe7ab&is=652d72ab&hm=c6f233887ec811df6ad8ec7df0556847610235459f1f0527080d4b432e63d8a5&
